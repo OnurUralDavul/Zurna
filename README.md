@@ -9,6 +9,9 @@
 
 ---
 
+![image](https://github.com/user-attachments/assets/35df0d9a-765b-4024-a60d-f49a69a8ff40)
+
+
 ## 🎉 Gelenek Devam Ediyor!
 
 Davul zurna ile gelin çıkarma, Türk düğünlerinin vazgeçilmez geleneklerinden biridir.  
