@@ -2,10 +2,10 @@
 
 ## 📩 İletişim  
 **Davul Zurna ile Gelin Çıkarma | Düğünlerin Neşesi Burada Başlıyor!**  
-👉 [@OnurUral](https://t.me/onurural)
+👉 [@OnurUral](https://t.me/onur_ural)
 
 ### 💌 Teklif Almak İçin  
-👉 [@OnurURAL](https://t.me/onurural)
+👉 [@OnurURAL](https://t.me/onur_ural)
 
 ---
 
