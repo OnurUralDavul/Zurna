@@ -4,7 +4,12 @@
 **Davul Zurna ile Gelin Çıkarma | Düğünlerin Neşesi Burada Başlıyor!**  
 👉 [@OnurUral](https://t.me/onur_ural)
 
-### <a href="tel:541-400-28-08</a><a href="tel:555-999-88-77">Bize Ulaşın</a>
+### 📩 İletişim
+
+📞 [Bizi Ara](tel:+905414002808)  
+📲 [WhatsApp'tan Yaz](https://wa.me/905414002808)  
+📨 [Telegram](https://t.me/onurural)
+
 
 ---
 
