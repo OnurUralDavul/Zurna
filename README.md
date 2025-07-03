@@ -1,11 +1,11 @@
 # Davul Zurna - Gelin Çıkarma 2025
 
 <h2>📩 İletişim</h2>
-<h3>Sizde Bu Listede Olmak İçin:</h3>
+<h3>Davul Zurna ile Gelin Çıkarma | Düğünlerin Neşesi Burada Başlıyor!:</h3>
 <p>👉 <a href="https://t.me/onurural">@OnurUral</a></p>
 
-<h3>Reklam ve işbirliği teklifleri için:</h3>
-<p>👉 <a href="https://t.me/onurural">@Onur URAL</a></p>
+<h3>Teklifler İçin:</h3>
+<p>👉 <a href="[https://t.me/onurural](https://www.instagram.com/onr.ural?igsh=MWY1MDAzeTRiMTNoOA%3D%3D&utm_source=qr)">@Onur URAL</a></p>
 
 
 🎉 Davul zurna ile gelin çıkarma, Türk düğünlerinin vazgeçilmez geleneklerinden biridir. Evden çıkarken çalan o neşeli ezgiler, sadece gelini değil, tüm mahalleyi ayağa kaldırır! 🥁💃
